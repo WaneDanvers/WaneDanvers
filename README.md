@@ -11,16 +11,6 @@
 - yes.
 - I'm just a kid with a shitty laptop.
 
-
-
-
-
-
-how tf do I save this shit
-
-
-
-
 <!---
 WaneDanvers/WaneDanvers is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
