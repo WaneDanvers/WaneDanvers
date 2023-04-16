@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @WaneDanvers
-- 👀 I’m interested in Anime tiddies.
 - 🌱 I’m currently learning Everything related to coding.
 - 💞️ I’m looking to collaborate on anyone... idk...
 - 📫 How to reach me, well... no.
