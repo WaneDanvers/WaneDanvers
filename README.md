@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @WaneDanvers
 - 🌱 I’m currently learning Everything related to coding.
-- 💞️ I’m looking to collaborate on anyone... idk...
 - 📫 How to reach me, well... no.
 
 - I'm just a simple man. 
